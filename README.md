@@ -1,4 +1,4 @@
 # H1
-- **Ben Kapkan** **kiryat Yam city**
+- **Ben Kapkan** from **kiryat Yam city**
 - **benzionkaplan@gmail.com**
 😃
